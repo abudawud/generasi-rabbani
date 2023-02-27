@@ -1,6 +1,6 @@
 ---
 created: 2023-02-27T18:31:41+07:00
-modified: 2023-02-27T19:21:05+07:00
+modified: 2023-02-27T19:31:21+07:00
 ---
 
 # Dosa Besar 13
@@ -39,3 +39,13 @@ Maka barangsiapa yang menipu orang-orang yang dipimpinnya lalu menipu, berbuat d
 - saling mengingatkan ketika ada kemungkaran. Maka harus saling mengingatkan dan memperhatikan tanggung jawabnya sesuai dengan kapasitas dan statusnya
 - kedhaliman adalah kegelapan di hari kiamat
 - lalu bagaimana dengan kedhaliman yang dilakukan oleh seorang pemimpin
+
+
+### Bagaimana 
+
+- Ilmu adalah kebutuhan jiwa kita
+- sebagaimana apabila fisik kekurangan asupan gizi maka begitulah apabila hati atau jiwa tanpa ilmu
+- dengan ilmu kita akan semangat untuk beribadah
+- seorang salafus Sholeh yang sangat cinta dengan ilmu, mereka rela berjalan jauh hanya untuk 1 hadits
+- ingatlah bahwa cinta itu butuh pengorbanan, maka apabila engkau cinta dengan ilmu maka berkorban lah untuknya 
+- maka perkataan seorang salaf ketika ditanya apakah engkau pernah galau? Maka dia menjawab, bagaimana mungkin aku galau sementara aku hidup bersama Rasulullah shalallahu alaihi wasallam dan para sahabatnya dengan membaca sirahnya
