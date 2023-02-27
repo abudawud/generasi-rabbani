@@ -1,6 +1,6 @@
 ---
 created: 2023-02-27T18:31:41+07:00
-modified: 2023-02-27T18:47:19+07:00
+modified: 2023-02-27T18:52:08+07:00
 ---
 
 # Dosa Besar 13
@@ -33,9 +33,9 @@ Maka barangsiapa yang menipu orang-orang yang dipimpinnya lalu menipu, berbuat d
 
  كَانُواْ لَا يَتَنَاهَوۡنَ عَن مُّنكَرٖ فَعَلُوهُۚ لَبِئۡسَ مَا كَانُواْ يَفۡعَلُون
 
-[Surah Al-Māʾidah: 79]
-Sabeq Company:
-Mereka tidak saling mencegah perbuatan munkar yang selalu mereka perbuat. Sungguh, sangat buruk apa yang mereka perbuat.
+> [Surah Al-Māʾidah: 79]
+> Sabeq Company:
+> Mereka tidak saling mencegah perbuatan munkar yang selalu mereka perbuat. Sungguh, sangat buruk apa yang mereka perbuat.
 
 - saling mengingatkan ketika ada kemungkaran. Maka harus saling mengingatkan dan memperhatikan tanggung jawabnya sesuai dengan kapasitas dan statusnya
 - kedhaliman adalah kegelapan di hari kiamat
