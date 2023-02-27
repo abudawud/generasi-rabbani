@@ -1,6 +1,6 @@
 ---
 created: 2023-02-27T18:31:41+07:00
-modified: 2023-02-27T19:04:53+07:00
+modified: 2023-02-27T19:18:11+07:00
 ---
 
 # Dosa Besar 13
@@ -39,4 +39,7 @@ Maka barangsiapa yang menipu orang-orang yang dipimpinnya lalu menipu, berbuat d
 - saling mengingatkan ketika ada kemungkaran. Maka harus saling mengingatkan dan memperhatikan tanggung jawabnya sesuai dengan kapasitas dan statusnya
 - kedhaliman adalah kegelapan di hari kiamat
 - lalu bagaimana dengan kedhaliman yang dilakukan oleh seorang pemimpin ?
--
+
+## Tanya Jawab
+
+###
