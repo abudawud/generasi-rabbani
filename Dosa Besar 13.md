@@ -1,6 +1,6 @@
 ---
 created: 2023-02-27T18:31:41+07:00
-modified: 2023-02-27T18:41:05+07:00
+modified: 2023-02-27T18:47:19+07:00
 ---
 
 # Dosa Besar 13
@@ -38,3 +38,6 @@ Sabeq Company:
 Mereka tidak saling mencegah perbuatan munkar yang selalu mereka perbuat. Sungguh, sangat buruk apa yang mereka perbuat.
 
 - saling mengingatkan ketika ada kemungkaran. Maka harus saling mengingatkan dan memperhatikan tanggung jawabnya sesuai dengan kapasitas dan statusnya
+- kedhaliman adalah kegelapan di hari kiamat
+- lalu bagaimana dengan kedhaliman yang dilakukan oleh seorang pemimpin ?
+-
