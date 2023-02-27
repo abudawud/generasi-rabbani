@@ -1,6 +1,6 @@
 ---
 created: 2023-02-27T18:31:41+07:00
-modified: 2023-02-27T19:18:11+07:00
+modified: 2023-02-27T19:20:10+07:00
 ---
 
 # Dosa Besar 13
@@ -43,3 +43,4 @@ Maka barangsiapa yang menipu orang-orang yang dipimpinnya lalu menipu, berbuat d
 ## Tanya Jawab
 
 ###
+![Image](./bc2016ff0ed7a29797f3fbb2f24cd3db.jpg)
