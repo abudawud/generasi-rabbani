@@ -1,6 +1,6 @@
 ---
 created: 2023-03-07T18:52:10+07:00
-modified: 2023-03-07T19:16:41+07:00
+modified: 2023-03-07T19:25:32+07:00
 ---
 
 # Adabul Mufrad
@@ -37,8 +37,17 @@ Nasehat bagi para mahasiswa yang telat menikah karena belum bisa membagi waktu a
 
 ## Bagaimana membedakan Takut dan Rindu kepada Allah 
 
-
 - kita harus beribadah kepada Allah dengan takut dan berharap 
 - sebagaimana Nabi Muhammad shalallahu alaihi wasallam 
   - sesungguhnya aku adalah orang yang paling takut (bertakwa) kepada Allah
   - Ya Allah aku meminta kepadamu rasa takut kepadamu baik dalam kondisi sendiri maupun tidak. Dan aku memohon kerinduan untuk berjumpa dengan Allah.
+
+
+## Berbakti pada orang tua yang cerai
+
+Bagaimana berbakti kepada orang tua yg cerai dan ibu melarang untuk bertemu ayah
+
+- iblis sangat mencintai cerai sekalipun itu boleh
+- banyak yang menikah tanpa ilmu dan pisah tanpa ilmu
+- usahakan berbakti kepada ayah tanpa diketahui ibu
+- tidak termasuk durhaka, karena tidak ada ketaatan kepada makhluk
