@@ -51,3 +51,5 @@ Seseorang datang bertemu dengan Nabi shalallahu alaihi wasallam, Ya Rasulullah s
 - semua puasa wajib digantikan oleh ahli warisnya
 - seorang yang sakit dan tidak tahu apakah sakitnya bisa sembuh atau tidak maka dia bisa membayar fidyah tanpa qadha
 - orang yang masih ada kesempatan sehat maka dia wajib mengganti puasa dan tanpa fidyah
+
+- Ahli waris tidak wajib membayarkan hutang termasuk hutang puasa. Kecuali jika ahli waris meninggalkan warisan
