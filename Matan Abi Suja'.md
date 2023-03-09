@@ -1,6 +1,6 @@
 ---
 created: 2023-03-09T18:18:37+07:00
-modified: 2023-03-09T19:18:21+07:00
+modified: 2023-03-09T19:20:11+07:00
 ---
 
 # Matan Abi Suja'
@@ -59,8 +59,10 @@ Kondisi dimana kalau tidak kita lakukan maka akan kehilangan sesuatu yang besar 
 
 ## Haram lidzatihi
 
-Haram karena dzatnya
+Haram karena dzatnya seperti darah, babi, ular, dll
 
-
+- berubah menjadi halal hanya jika darurat
 
 ## Haram lighairihi
+
+Haram karena tidak ada sebab. Seperti melihat perempuan ajnabi adalah haram tapi menjadi halal apabila ada Hajah seperti pengobatan, nadhor, dll
