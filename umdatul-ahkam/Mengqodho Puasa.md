@@ -1,9 +1,8 @@
 ---
+title: Mengqodho Puasa
 created: 2023-03-08T18:26:42+07:00
 modified: 2023-03-08T18:55:43+07:00
 ---
-
-# Umdatul Ahkam
 
 # Mengqodho Puasa
 
