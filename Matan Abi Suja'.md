@@ -1,6 +1,9 @@
 ---
-created: 2023-03-09T18:18:37+07:00
-modified: 2023-03-09T19:20:11+07:00
+title: Kategori Hewan Yang Halal
+date: 2023-03-09
+author: Generasi Rabbani
+tags: [fiqih]
+categories: ["Kitab Matan Abi Suja"]
 ---
 
 # Matan Abi Suja'
