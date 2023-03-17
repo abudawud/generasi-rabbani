@@ -4,6 +4,7 @@ date 2023-03-08
 author: Abu Abdurrahman
 tags: [fiqih, puasa]
 categories: ["Kitab Umdatul Ahkam"]
+summary: Apabila hutang kepada sesama hamba harus diganti, maka hutang kepada Allah lebih berhak untuk di qodho.
 ---
 
 # Mengqodho Puasa
