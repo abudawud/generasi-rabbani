@@ -1,6 +1,6 @@
 ---
 title: Mengqodho Puasa
-date 2023-03-08
+date: 2023-03-08
 author: Abu Abdurrahman
 tags: [fiqih, puasa]
 categories: ["Kitab Umdatul Ahkam"]
