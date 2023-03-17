@@ -1,6 +1,9 @@
 ---
-created: 2023-03-08T19:18:49+07:00
-modified: 2023-03-08T19:21:30+07:00
+title: Puasa Wishal
+date: 2023-03-08
+author: Abu Abdurrahman
+tags: [fiqih, puasa]
+categories: ["Umdatul Ahkam"]
 ---
 
 # Puasa Wishal
