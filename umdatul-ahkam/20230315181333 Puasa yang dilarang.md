@@ -4,6 +4,7 @@ date: 2023-03-15
 author: Abu Abdurrahman
 tags: [fiqih, puasa, qodho]
 categories: ["Kitab Umdatul Ahkam"]
+summary: Puasa adalah ibadah yang paling besar membuka pintu ikhlas. Kendati demikian puasa sunnah yang terlalu memaksakan diri sehingga ibadah lainnya yang wajib menjadi tidak maksimal maka hal ini dilarang.
 ---
 
 # Muqoddimah
