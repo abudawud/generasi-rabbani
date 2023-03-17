@@ -1,6 +1,10 @@
 ---
-created: 2023-02-27T18:31:41+07:00
-modified: 2023-02-27T19:31:21+07:00
+title: Imam Yang Menipu 
+date: 2023-02-27
+author: Abu Abdurrahman
+tags: [al-kabair]
+categories: []
+summary: Seorang pemimpin secara luas adalah termasuk suami dan pemimpin lainnya sekalipun dalam sekala kecil. Apabila dia menipu maka ini termasuk dosa besar
 ---
 
 # Dosa Besar 13
