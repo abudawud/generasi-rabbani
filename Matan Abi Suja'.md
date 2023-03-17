@@ -4,6 +4,7 @@ date: 2023-03-09
 author: Generasi Rabbani
 tags: [fiqih]
 categories: ["Kitab Matan Abi Suja"]
+summary: Hewan yang dihalalkan oleh Allah dikenal memiliki sifat yang baik.
 ---
 
 # Matan Abi Suja'
