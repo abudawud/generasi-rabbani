@@ -1,5 +1,5 @@
 ---
-title: Ushul Assunnah
+title: Beriman Kepada Takdir 2 
 date: 2023-03-17
 author: Abu Abdurrahman
 tags: [aqidah]
