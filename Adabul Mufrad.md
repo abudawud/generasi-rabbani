@@ -4,6 +4,7 @@ date: 2023-03-07
 author: Abu Abdurrahman
 tags: [adab, syair]
 categories: ["Kitab Adabul Mufrad"]
+summary: Menghina qabilah dengan syair termasuk dosa besar karena syair lebih mudah dihafal dan tersebar
 ---
 
 # Adabul Mufrad
