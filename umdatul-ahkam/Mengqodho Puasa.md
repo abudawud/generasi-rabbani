@@ -1,12 +1,14 @@
 ---
 title: Mengqodho Puasa
-created: 2023-03-08T18:26:42+07:00
-modified: 2023-03-08T18:55:43+07:00
+date 2023-03-08
+author: Abu Abdurrahman
+tags: [fiqih, puasa]
+categories: ["Kitab Umdatul Ahkam"]
 ---
 
 # Mengqodho Puasa
 
-## 
+## Batas Mengqodho Puasa
 
 Aisyah berkata: aku memiliki hutang puasa pada tahun kemarin dan tidaklah saya dapat membayarnya kecuali di bulan Syakban tahun ini
 
