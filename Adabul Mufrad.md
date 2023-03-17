@@ -1,6 +1,9 @@
 ---
-created: 2023-03-07T18:52:10+07:00
-modified: 2023-03-07T19:25:32+07:00
+title: Syair Yang Diharamkan
+date: 2023-03-07
+author: Abu Abdurrahman
+tags: [adab, syair]
+categories: ["Kitab Adabul Mufrad"]
 ---
 
 # Adabul Mufrad
