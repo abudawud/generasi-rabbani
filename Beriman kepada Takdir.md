@@ -1,6 +1,10 @@
 ---
-created: 2023-03-10T18:37:41+07:00
-modified: 2023-03-10T19:03:32+07:00
+title: Beriman Kepada Takdir
+date: 2023-03-10
+author: Abu Abdurrahman
+tags: [aqidah]
+categories: []
+summary: Segala sesuatu telah Allah takdirkan termasuk kecerdasan, lemahnya tenaga, dan lainnya yang untuk memahaminya harus sesuai dengan pemahaman para salaf yang telah Allah ridhoi
 ---
 
 # Beriman kepada Takdir
