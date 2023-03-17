@@ -1,5 +1,9 @@
 ---
 title: Beberapa macam puasa yg dilarang
+date: 2023-03-15
+author: Abu Abdurrahman
+tags: [fiqih, puasa, qodho]
+categories: ["Kitab Umdatul Ahkam"]
 ---
 
 # Muqoddimah
