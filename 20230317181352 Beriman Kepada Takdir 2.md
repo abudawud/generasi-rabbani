@@ -35,7 +35,9 @@ Seandainya Allah menghendaki untuk mengadzab penduduk langit dan bumi, maka Alla
 > Tidak menambah umur kecuali perbuatan baik, dan tidak menolak takdir kecuali doa, Hadits Tarmizi
 
 - terkandung beriman kepada takdir dan beramal shaleh
+- orang yang kelak akan masuk surga maka Allah akan mudahkan dia untuk beramal shaleh
 
+## Larangan berdebat tentang takdir
 
 > Jangan sampai seseorang mendebat yg lain dan jangan mempelajari bagaimana cara debat kusir 
 
@@ -57,11 +59,9 @@ Seandainya Allah menghendaki untuk mengadzab penduduk langit dan bumi, maka Alla
   - Hal ini karena Allah mampu untuk melakukan segala sesuatu (Qudratullah)
   - maka ketika seseorang mengingkari takdir maka dia telah mengingkari Qudratullah
   - Ketika seseorang mendustakan Qudratullah maka dia telah mengatakan Allah memiliki kekurangan yang besar.
-- maka janganlah berdebat dengan orang yang demikian sehingga kesyirikan mereka akan berjalan hingga mendustakan Qudratullah 
+- maka janganlah berdebat dengan orang yang demikian sehingga kesyirikan mereka akan berjalan hingga mendustakan Qudratullah  
 
-- orang yang kelak akan masuk surga maka Allah akan mudahkan dia untuk beramal shaleh 
-- 
-
+## Tokoh Qadariyah terkenal
 
 Maka berkata beliau, apakah engkau makbad ? Iya. Maka thagus menoleh kepada penduduk Mekah dan mengatakan, ini adalah makbad maka hinakanlah dia. Thagus
 
