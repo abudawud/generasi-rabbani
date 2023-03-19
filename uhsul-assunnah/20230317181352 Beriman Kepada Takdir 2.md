@@ -5,7 +5,7 @@ author: Abu Abdurrahman
 tags: [aqidah]
 categories: ["Kitab Ushul Assunnah"]
 draft: true
-summary: Pending
+summary: 
 ---
 
 # Beriman Kepada Takdir 2
