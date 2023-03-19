@@ -4,7 +4,6 @@ date: 2023-03-17
 author: Abu Abdurrahman
 tags: [aqidah]
 categories: ["Kitab Ushul Assunnah"]
-draft: true
 summary: Seseorang yang beriman kepada takdir maka dia telah beriman bahwa Allah maha segalanya (Qudratullah), yaitu Allah maha mengetahui apa yang akan terjadi dan bagaimana terjadinya dan orang-orang dari kalangan sahabat yang Allah ridho terhadap mereka telah lurus pemahamannya tentang keimanan kepada takdir.
 ---
 
