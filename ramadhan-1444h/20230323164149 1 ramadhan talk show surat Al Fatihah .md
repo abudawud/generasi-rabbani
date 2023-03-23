@@ -3,7 +3,7 @@ title: Talk Show Surat Al-Fatihah
 date: 2023-03-23
 author: Abu Abdurrahman
 tags: [tafsir, rukyah]
-categories: ["Ramadhan"]
+categories: ["Ramadhan 1444H"]
 ---
 
 # Talk Show Surat Al-Fatihah
