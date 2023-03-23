@@ -2,9 +2,11 @@
 title: Talk Show Surat Al-Fatihah 
 date: 2023-03-23
 author: Abu Abdurrahman
-tags: [tafsir]
-categories: []
+tags: [tafsir, rukyah]
+categories: ["Ramadhan"]
 ---
+
+# Talk Show Surat Al-Fatihah
 
 ## 1. Tingkatan perukyah syar'i
 
@@ -25,9 +27,9 @@ Ketika ada orang yang sakit kemudian kita rukyah dengan dibacakan surat Al-Fatih
 - Ketika ustadz Arifin Badri meminta untuk merukyah, beliau menolak karena ibarat obat. Obat yg dari dokter itu tidaklah disuapi oleh dokter tersebut. Lalu bagaimana dengan obat dari Allah (Al Qur'an)
   - Maka kuatkanlah keimanan karena setiap diri kita sebenarnya mampu
 
-## 2. 
+## 2. Khilafiyah Menghadiahkan Pahala 
 
-Apa yang menjadikan
+Apa yang menjadikan kebanyakan masyarakat menghadiahkan pahala kepada orang yang sudah meninggal 
 
 ### Ulama yang membolehkan
 
@@ -49,10 +51,14 @@ Apa yang menjadikan
  ## 3. Memahami makna Maliki Yaumuddin
  
  - hari kiamat adalah hari yang tidak ada raja. Semua raja lenyap. Kalau hanya kerajaan Allah waktu itu exist sementara raja-raja lainnya telah sirna. Kalaulah Allah Raja dimana tidak ada raja lagi yg exist maka tidak perlu lagi dengan gelar lainnya
- - sebagaimana orang yang memiliki Jet Pribadi
+ - sebagaimana orang yang memiliki Jet Pribadi tidak perlu dipertanyakan apakah dia punya motor atau tidak
  - maka biasakan membaca Al-Qur'an, tiru apa yang Allah inginkan dari diturunkannya Al-Qur'an
- - para ulama yang 
+ - Para ulama yang dulu mempelajari Al-Qur'an dan tafsir mereka adalah orang-orang yang cerdas
  - Orang yang paling hebat diantara kalian adalah yang mempelajari Al-Qur'an
    - intelektual
    - kecerdasan
    - dll
+ 
+ # Referensi
+ 
+ Disampaikan oleh **Ustadz Arifin Badri hafidzahullah**
