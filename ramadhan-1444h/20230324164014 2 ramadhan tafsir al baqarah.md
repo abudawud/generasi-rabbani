@@ -39,9 +39,15 @@ Dan (ingatlah) ketika Musa berkata kepada kaumnya, “Sungguh Allah memerintahka
 - Penjelasan tentang keabsahan Al-Qur'an
   - berasal dari Allah dan tidak ada keraguan tentangnya
   - buktj tidak ada keraguan adalah Al-Qur'an tersusun dari huruf yang sama sebagaimana alwal ayat dari surat ini. Dan Allah menantang jika ada yg ragu tentang Al-Qur'an maka datangkan saja satu surat yg sama. Sungguh Al-Qur'an itu tersusun dari huruf yg sama dengan yg kalian gunakan untuk menyusun syair, akan tetapi kalian tidak akan mampu untuk menyusun hal yg serupa.
+
 { وَإِن كُنتُمۡ فِي رَيۡبٖ مِّمَّا نَزَّلۡنَا عَلَىٰ عَبۡدِنَا فَأۡتُواْ بِسُورَةٖ مِّن مِّثۡلِهِۦ وَٱدۡعُواْ شُهَدَآءَكُم مِّن دُونِ ٱللَّهِ إِن كُنتُمۡ صَٰدِقِينَ }
 [Surah Al-Baqarah: 23]
 
 Sabeq Company:
 Dan jika kamu meragukan (Al-Qur`ān) yang Kami turunkan kepada hamba Kami (Muhammad), maka buatlah satu surah semisal dengannya dan ajaklah penolong-penolongmu selain Allah, jika kamu orang-orang yang benar.
 
+{ فَإِن لَّمۡ تَفۡعَلُواْ وَلَن تَفۡعَلُواْ فَٱتَّقُواْ ٱلنَّارَ ٱلَّتِي وَقُودُهَا ٱلنَّاسُ وَٱلۡحِجَارَةُۖ أُعِدَّتۡ لِلۡكَٰفِرِينَ }
+[Surah Al-Baqarah: 24]
+
+Sabeq Company:
+Jika kamu tidak mampu membuatnya, dan (pasti) tidak akan mampu, maka takutlah kamu akan api neraka yang bahan bakarnya manusia dan batu yang disediakan bagi orang-orang kafir.
