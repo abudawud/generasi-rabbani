@@ -1,8 +1,8 @@
 ---
-title: 2 ramadhan tafsir al baqarah
+title: Tafsir Surat Al Baqarah 
 date: 2023-03-24
-author: Generasi Rabbani
-tags: []
+author: Abu Abdurrahman 
+tags: [tafsir,hati,syiah]
 categories: []
 ---
 
