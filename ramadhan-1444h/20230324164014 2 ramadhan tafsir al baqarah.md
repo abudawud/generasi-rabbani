@@ -51,3 +51,6 @@ Dan jika kamu meragukan (Al-Qur`ān) yang Kami turunkan kepada hamba Kami (Muham
 
 Sabeq Company:
 Jika kamu tidak mampu membuatnya, dan (pasti) tidak akan mampu, maka takutlah kamu akan api neraka yang bahan bakarnya manusia dan batu yang disediakan bagi orang-orang kafir.
+  - terkandung makna di dalamnya bahwa Rasulullah shalallahu alaihi wasallam adalah benar utusan Allah, karena kalau orang topnya Mekkah tidak bisa mendatangkan surat yg serupa maka lebih-lebih lagi Rasulullah shalallahu alaihi wasallam
+- mengajak manusia untuk beribadah hanya kepada Allah 
+
