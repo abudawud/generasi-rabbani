@@ -3,8 +3,8 @@ title: Tadabbur Surat An-Nisa
 date: 2023-03-26
 author: Abu Abdurrahman 
 tags: [tafsir, adab]
-categories: []
-summary: -
+categories: ["Ramadhan 1444H"]
+summary: Pada masa jahiliah, wanita di perbudak, dibunuh ketika bayi, tidak mendapatkan warisan, dihinakan, dll. Kemudian Allah memuliakan wanita dengan menurunkan satu surat khusus yaitu surat An-Nisa.
 ---
 
 # Muqoddimah
@@ -66,7 +66,7 @@ Allah tidak akan mengampuni dosa syirik (mempersekutukan Allah dengan sesuatu), 
 
 - perintah untuk menjadikan Al-Qur'an sebagai landasan hukum di seluruh lini kehidupan terlebih lagi negara
 
-{ إِنَّآ أَنزَلۡنَآ إِلَيۡكَ ٱلۡكِتَٰبَ بِٱلۡحَقِّ لِتَحۡكُمَ بَيۡنَ ٱلنَّاسِ بِمَآ أَرَىٰكَ ٱللَّهُۚ وَلَا تَكُن لِّلۡخَآئِنِينَ خَصِيمٗا }
+إِنَّآ أَنزَلۡنَآ إِلَيۡكَ ٱلۡكِتَٰبَ بِٱلۡحَقِّ لِتَحۡكُمَ بَيۡنَ ٱلنَّاسِ بِمَآ أَرَىٰكَ ٱللَّهُۚ وَلَا تَكُن لِّلۡخَآئِنِينَ خَصِيمٗا
 [Surah An-Nisāʾ: 105]
 
 Sabeq Company:
@@ -119,13 +119,24 @@ Dan taubat itu tidaklah (diterima Allah) dari mereka yang melakukan kejahatan hi
 
 ## Menentang Rasul
 
-{ وَمَن يُشَاقِقِ ٱلرَّسُولَ مِنۢ بَعۡدِ مَا تَبَيَّنَ لَهُ ٱلۡهُدَىٰ وَيَتَّبِعۡ غَيۡرَ سَبِيلِ ٱلۡمُؤۡمِنِينَ نُوَلِّهِۦ مَا تَوَلَّىٰ وَنُصۡلِهِۦ جَهَنَّمَۖ وَسَآءَتۡ مَصِيرًا }
+وَمَن يُشَاقِقِ ٱلرَّسُولَ مِنۢ بَعۡدِ مَا تَبَيَّنَ لَهُ ٱلۡهُدَىٰ وَيَتَّبِعۡ غَيۡرَ سَبِيلِ ٱلۡمُؤۡمِنِينَ نُوَلِّهِۦ مَا تَوَلَّىٰ وَنُصۡلِهِۦ جَهَنَّمَۖ وَسَآءَتۡ مَصِيرًا
 [Surah An-Nisāʾ: 115]
 
 Sabeq Company:
 Dan barang siapa menentang Rasul (Muhammad) setelah jelas kebenaran baginya, dan mengikuti jalan yang bukan jalan orang-orang mukmin, Kami biarkan dia dalam kesesatan yang telah dilakukannya itu dan akan Kami masukkan dia ke dalam neraka Jahannam, dan itu seburuk-buruk tempat kembali.
 
 - Yaitu jalannya para sahabat Nabi Muhammad shalallahu alaihi wasallam yang telah Allah ridhoi
-- 
+
+## Orang yang Baik Agamanya 
+
+وَمَنۡ أَحۡسَنُ دِينٗا مِّمَّنۡ أَسۡلَمَ وَجۡهَهُۥ لِلَّهِ وَهُوَ مُحۡسِنٞ وَٱتَّبَعَ مِلَّةَ إِبۡرَٰهِيمَ حَنِيفٗاۗ وَٱتَّخَذَ ٱللَّهُ إِبۡرَٰهِيمَ خَلِيلٗا
+[Surah An-Nisāʾ: 125]
+
+Sabeq Company:
+Dan siapakah yang lebih baik agamanya daripada orang yang dengan ikhlas berserah diri kepada Allah, sedang dia mengerjakan kebaikan, dan mengikuti agama Ibrahim yang lurus? Dan Allah telah memilih Ibrahim menjadi kesayangan(Nya).
+
+- orang yang paling baik ibadahnya adalah yang melaksanakan dua hal
+  - Ikhlas: Memurnikan ibadah kepada Allah, lawannya syirik
+  - Mengikuti Rasul: Ibadah sesuai dengan tuntunan beliau, lawannya adalah bidah
 
 # Referensi
