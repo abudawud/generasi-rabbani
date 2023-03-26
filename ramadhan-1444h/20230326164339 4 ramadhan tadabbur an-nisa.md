@@ -100,8 +100,22 @@ Wahai manusia! Bertakwalah kepada Tuhanmu yang telah menciptakan kamu dari diri 
 Sabeq Company:
 Dan milik Allah-lah apa yang ada di langit dan apa yang ada di bumi, dan sungguh, Kami telah memerintahkan kepada orang yang diberi kitab suci sebelum kamu dan (juga) kepadamu agar bertakwalah kepada Allah. Tetapi jika kamu ingkar maka (ketahuilah), milik Allah-lah apa yang ada di langit dan apa yang ada di bumi dan Allah Mahakaya, Maha Terpuji.
 
-##  
+##  Perintah untuk bertaubat 
 
+إِنَّمَا ٱلتَّوۡبَةُ عَلَى ٱللَّهِ لِلَّذِينَ يَعۡمَلُونَ ٱلسُّوٓءَ بِجَهَٰلَةٖ ثُمَّ يَتُوبُونَ مِن قَرِيبٖ فَأُوْلَٰٓئِكَ يَتُوبُ ٱللَّهُ عَلَيۡهِمۡۗ وَكَانَ ٱللَّهُ عَلِيمًا حَكِيمٗا
+[Surah An-Nisāʾ: 17]
+
+Sabeq Company:
+Sesungguhnya bertaubat kepada Allah itu hanya (pantas) bagi mereka yang melakukan kejahatan karena tidak mengerti, kemudian segera bertaubat. taubat mereka itulah yang diterima Allah. Allah Maha Mengetahui, Mahabijaksana.
+
+وَلَيۡسَتِ ٱلتَّوۡبَةُ لِلَّذِينَ يَعۡمَلُونَ ٱلسَّيِّـَٔاتِ حَتَّىٰٓ إِذَا حَضَرَ أَحَدَهُمُ ٱلۡمَوۡتُ قَالَ إِنِّي تُبۡتُ ٱلۡـَٰٔنَ وَلَا ٱلَّذِينَ يَمُوتُونَ وَهُمۡ كُفَّارٌۚ أُوْلَٰٓئِكَ أَعۡتَدۡنَا لَهُمۡ عَذَابًا أَلِيمٗا
+[Surah An-Nisāʾ: 18]
+
+Sabeq Company:
+Dan taubat itu tidaklah (diterima Allah) dari mereka yang melakukan kejahatan hingga apabila datang ajal kepada seseorang di antara mereka, (barulah) dia mengatakan, “Saya benar-benar bertaubat sekarang.” Dan tidak (pula diterima taubat) dari orang-orang yang meninggal sedang mereka di dalam kekafiran. Bagi orang-orang itu telah Kami sediakan azab yang pedih.
+
+- kejahilan kita kepada Allah menjadikan kita bisa berbuat dosa kepada Allah sekalipun di itu ustadz
+- maka banyak-banyaklah bertaubat di bulan Ramdhan ini, bulan ampunan. Sebagaimana hadits: Dan barangsiapa yang dosanya tidak diampuni sementara bulan ramadhan telah berlalu maka dia adalah orang yang merugi
 
 
 
