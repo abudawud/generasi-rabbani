@@ -4,6 +4,7 @@ date: 2023-03-23
 author: Abu Abdurrahman
 tags: [tafsir, rukyah]
 categories: ["Ramadhan 1444H"]
+summary: Tingkat rukyah seseorang bergantung pada bagaimana kedekatan dia dengan Al-Qur'an. Ketahuilah Bahwa Al-Qur'an itu adalah obat dan tidak obat tidak perlu disuapkan.
 ---
 
 # Talk Show Surat Al-Fatihah
@@ -58,8 +59,7 @@ Apa yang menjadikan kebanyakan masyarakat menghadiahkan pahala kepada orang yang
    - intelektual
    - kecerdasan
    - dll
- 
- 
- # Referensi
+
+# Referensi
  
 Disampaikan oleh **Ustadz Arifin Badri hafidzahullah**
