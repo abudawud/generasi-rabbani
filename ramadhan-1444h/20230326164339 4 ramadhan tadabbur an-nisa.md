@@ -65,7 +65,18 @@ Sabeq Company:
 Allah tidak akan mengampuni dosa syirik (mempersekutukan Allah dengan sesuatu), dan Dia mengampuni dosa selain itu bagi siapa yang Dia kehendaki. Dan barang siapa mempersekutukan (sesuatu) dengan Allah, maka sungguh, dia telah tersesat jauh sekali.
 
 - perintah untuk menjadikan Al-Qur'an sebagai landasan hukum di seluruh lini kehidupan terlebih lagi negara
-- 
+
+{ إِنَّآ أَنزَلۡنَآ إِلَيۡكَ ٱلۡكِتَٰبَ بِٱلۡحَقِّ لِتَحۡكُمَ بَيۡنَ ٱلنَّاسِ بِمَآ أَرَىٰكَ ٱللَّهُۚ وَلَا تَكُن لِّلۡخَآئِنِينَ خَصِيمٗا }
+[Surah An-Nisāʾ: 105]
+
+Sabeq Company:
+Sungguh, Kami telah menurunkan Kitab (Al-Qur`ān) kepadamu (Muhammad) membawa kebenaran, agar engkau mengadili antara manusia dengan apa yang telah diajarkan Allah kepadamu, dan janganlah engkau menjadi penentang (orang yang tidak bersalah), karena (membela) orang yang berkhianat.
+
+# Ayat Pilihan
+
+## Perintah untuk bertakwa
+
+
 
 
 
