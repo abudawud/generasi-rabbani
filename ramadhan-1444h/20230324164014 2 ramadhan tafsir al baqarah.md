@@ -4,6 +4,7 @@ date: 2023-03-24
 author: Abu Abdurrahman 
 tags: [tafsir,hati,syiah]
 categories: ["Ramadhan 1444H"]
+summary: Allah telah menurunkan banyak mukjizat kepada Bani Israil akan tetapi hati mereka justru semakin keras bahkan lebih keras dari batu.
 ---
 
 # Asal Penamaan
@@ -13,7 +14,7 @@ categories: ["Ramadhan 1444H"]
 - setelah Allah menunjukkan kekuasaannya dengan menghidupkan orang yg mati, hati Bani Israil malah semakin keras bahkan lebih keras dari batu. Padahal baru yang keras saja ada yg yg mengeluarkan air darinya
 - Batu saja Allah sebutkan yg tergelincir terjatuh dari ketinggian itu menunjukkan batu tersebut takut kepada Allah, apabila batu saja takut kepada Allah maka patutkah hati kita tidak takut kepada Allah?
 
-{ وَإِذۡ قَالَ مُوسَىٰ لِقَوۡمِهِۦٓ إِنَّ ٱللَّهَ يَأۡمُرُكُمۡ أَن تَذۡبَحُواْ بَقَرَةٗۖ قَالُوٓاْ أَتَتَّخِذُنَا هُزُوٗاۖ قَالَ أَعُوذُ بِٱللَّهِ أَنۡ أَكُونَ مِنَ ٱلۡجَٰهِلِينَ }
+وَإِذۡ قَالَ مُوسَىٰ لِقَوۡمِهِۦٓ إِنَّ ٱللَّهَ يَأۡمُرُكُمۡ أَن تَذۡبَحُواْ بَقَرَةٗۖ قَالُوٓاْ أَتَتَّخِذُنَا هُزُوٗاۖ قَالَ أَعُوذُ بِٱللَّهِ أَنۡ أَكُونَ مِنَ ٱلۡجَٰهِلِينَ
 [Surah Al-Baqarah: 67]
 
 Sabeq Company:
@@ -37,13 +38,13 @@ Dan (ingatlah) ketika Musa berkata kepada kaumnya, “Sungguh Allah memerintahka
   - berasal dari Allah dan tidak ada keraguan tentangnya
   - buktj tidak ada keraguan adalah Al-Qur'an tersusun dari huruf yang sama sebagaimana alwal ayat dari surat ini. Dan Allah menantang jika ada yg ragu tentang Al-Qur'an maka datangkan saja satu surat yg sama. Sungguh Al-Qur'an itu tersusun dari huruf yg sama dengan yg kalian gunakan untuk menyusun syair, akan tetapi kalian tidak akan mampu untuk menyusun hal yg serupa.
 
-{ وَإِن كُنتُمۡ فِي رَيۡبٖ مِّمَّا نَزَّلۡنَا عَلَىٰ عَبۡدِنَا فَأۡتُواْ بِسُورَةٖ مِّن مِّثۡلِهِۦ وَٱدۡعُواْ شُهَدَآءَكُم مِّن دُونِ ٱللَّهِ إِن كُنتُمۡ صَٰدِقِينَ }
+وَإِن كُنتُمۡ فِي رَيۡبٖ مِّمَّا نَزَّلۡنَا عَلَىٰ عَبۡدِنَا فَأۡتُواْ بِسُورَةٖ مِّن مِّثۡلِهِۦ وَٱدۡعُواْ شُهَدَآءَكُم مِّن دُونِ ٱللَّهِ إِن كُنتُمۡ صَٰدِقِينَ
 [Surah Al-Baqarah: 23]
 
 Sabeq Company:
 Dan jika kamu meragukan (Al-Qur`ān) yang Kami turunkan kepada hamba Kami (Muhammad), maka buatlah satu surah semisal dengannya dan ajaklah penolong-penolongmu selain Allah, jika kamu orang-orang yang benar.
 
-{ فَإِن لَّمۡ تَفۡعَلُواْ وَلَن تَفۡعَلُواْ فَٱتَّقُواْ ٱلنَّارَ ٱلَّتِي وَقُودُهَا ٱلنَّاسُ وَٱلۡحِجَارَةُۖ أُعِدَّتۡ لِلۡكَٰفِرِينَ }
+فَإِن لَّمۡ تَفۡعَلُواْ وَلَن تَفۡعَلُواْ فَٱتَّقُواْ ٱلنَّارَ ٱلَّتِي وَقُودُهَا ٱلنَّاسُ وَٱلۡحِجَارَةُۖ أُعِدَّتۡ لِلۡكَٰفِرِينَ
 [Surah Al-Baqarah: 24]
 
 Sabeq Company:
