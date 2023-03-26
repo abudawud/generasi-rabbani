@@ -117,6 +117,15 @@ Dan taubat itu tidaklah (diterima Allah) dari mereka yang melakukan kejahatan hi
 - kejahilan kita kepada Allah menjadikan kita bisa berbuat dosa kepada Allah sekalipun di itu ustadz
 - maka banyak-banyaklah bertaubat di bulan Ramdhan ini, bulan ampunan. Sebagaimana hadits: Dan barangsiapa yang dosanya tidak diampuni sementara bulan ramadhan telah berlalu maka dia adalah orang yang merugi
 
+## Menentang Rasul
 
+{ وَمَن يُشَاقِقِ ٱلرَّسُولَ مِنۢ بَعۡدِ مَا تَبَيَّنَ لَهُ ٱلۡهُدَىٰ وَيَتَّبِعۡ غَيۡرَ سَبِيلِ ٱلۡمُؤۡمِنِينَ نُوَلِّهِۦ مَا تَوَلَّىٰ وَنُصۡلِهِۦ جَهَنَّمَۖ وَسَآءَتۡ مَصِيرًا }
+[Surah An-Nisāʾ: 115]
+
+Sabeq Company:
+Dan barang siapa menentang Rasul (Muhammad) setelah jelas kebenaran baginya, dan mengikuti jalan yang bukan jalan orang-orang mukmin, Kami biarkan dia dalam kesesatan yang telah dilakukannya itu dan akan Kami masukkan dia ke dalam neraka Jahannam, dan itu seburuk-buruk tempat kembali.
+
+- Yaitu jalannya para sahabat Nabi Muhammad shalallahu alaihi wasallam yang telah Allah ridhoi
+- 
 
 # Referensi
