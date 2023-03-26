@@ -3,13 +3,10 @@ title: Tafsir Surat Al Baqarah
 date: 2023-03-24
 author: Abu Abdurrahman 
 tags: [tafsir,hati,syiah]
-categories: []
+categories: ["Ramadhan 1444H"]
 ---
 
-# Moqoddimah
-
-
-# Asal penamaan
+# Asal Penamaan
 
 - Bani Israil diperintahkan untuk menyembelih sapi betina karena adanya pembunuhan namun mereka malah membantah, apakah engkau hendak menghinakan kami ?. Dalam hal ini Bani Israil telah lancang kepada Nabi Isa
 - ketika sapi tersebut selesai disembelih maka Allah memerintahkan mereka untuk memikul mayat yg telah meninggal itu dengan salah satu bagian dari sapi yg telah disembelih 
@@ -24,7 +21,7 @@ Dan (ingatlah) ketika Musa berkata kepada kaumnya, “Sungguh Allah memerintahka
 
 - Syiah rofidhah menafsirkan ayat ini bahwa sapi yg dimaksud disini adalah Ibunda Aisyah Radhiyallahu Anha. Hal ini disebabkan karena mereka mendahulukan keyakinan daripada ilmu. Sehingga mereka memaksakan tafsir untuk memenuhi keinginan mereka. Hal ini sangatlah tidak mungkin, karena kisah ini terjadi pada masa Nabi Musa alaihi salam
 
-## Keutamaan Allah 
+## Keutamaan Al Baqarah 
 
 - Syaitan akan kabur dari rumah yg dibacakan surat Al Baqarah
 - orang yang biasa membaca surat ini dan Al Imran, kelak akan dinaungi oleh awan
@@ -54,3 +51,6 @@ Jika kamu tidak mampu membuatnya, dan (pasti) tidak akan mampu, maka takutlah ka
   - terkandung makna di dalamnya bahwa Rasulullah shalallahu alaihi wasallam adalah benar utusan Allah, karena kalau orang topnya Mekkah tidak bisa mendatangkan surat yg serupa maka lebih-lebih lagi Rasulullah shalallahu alaihi wasallam
 - mengajak manusia untuk beribadah hanya kepada Allah 
 
+# Referensi
+
+Disampaikan oleh **Ustadz Khusnul Khuluq** hafidzahullah pada kajian menjelang berbuka
