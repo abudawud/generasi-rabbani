@@ -74,8 +74,33 @@ Sungguh, Kami telah menurunkan Kitab (Al-Qur`ān) kepadamu (Muhammad) membawa ke
 
 # Ayat Pilihan
 
+Ayat pilihan yang dipilih oleh muallif
+
 ## Perintah untuk bertakwa
 
+ يَٰٓأَيُّهَا ٱلنَّاسُ ٱتَّقُواْ رَبَّكُمُ ٱلَّذِي خَلَقَكُم مِّن نَّفۡسٖ وَٰحِدَةٖ وَخَلَقَ مِنۡهَا زَوۡجَهَا وَبَثَّ مِنۡهُمَا رِجَالٗا كَثِيرٗا وَنِسَآءٗۚ وَٱتَّقُواْ ٱللَّهَ ٱلَّذِي تَسَآءَلُونَ بِهِۦ وَٱلۡأَرۡحَامَۚ إِنَّ ٱللَّهَ كَانَ عَلَيۡكُمۡ رَقِيبٗا
+[Surah An-Nisāʾ: 1]
+
+Sabeq Company:
+Wahai manusia! Bertakwalah kepada Tuhanmu yang telah menciptakan kamu dari diri yang satu (Adam), dan (Allah) menciptakan pasangannya (Hawa) dari (diri)nya; dan dari keduanya Allah memperkembangbiakkan laki-laki dan perempuan yang banyak. Bertakwalah kepada Allah yang dengan nama-Nya kamu saling meminta,dan (peliharalah) hubungan kekeluargaan. Sesungguhnya Allah selalu menjaga dan mengawasimu.
+
+- Allah menyeru seluruh ummat manusia untuk bertakwa
+- Allah menyeru kepada seluruh manusia dengan bertakwa kepada Rabb kalian yg semua manusia sepakat
+- Ketika Allah menyeru kepada orang beriman maka Allah memerintahkan untuk bertakwa kepada Allah
+- Ketika kita diciptakan dari satu jiwa yang sama, maka janganlah sombong dan merasa lebih mulia dari yang lainnya. Karena standard kemuliaan adalah takwa
+- Ketika perempuan diciptakan dari tulang rusuk yang bengkok, maka kita sebagai laki-laki harus memakluminya.
+- ketika Allah menyebutkan "bertakwalah kalian kepada Allah" adalah sebab dari ayat sebelumnya, ketika kita bertakwa kepada Rabb yg telah menciptakan manusia maka tentu dialah yang berhak disembah. Sebagaimana kata Allah berasal dari "Al-Ilah" 
+- perintah untuk bertakwa kepada Allah dan bertakwa kepada Arham (hubungan rahim)
+- Allah selalu memantau kita, sehingga derajad Al Ihsan adalah derajat yang ketika beribadah seakan akan kalian dilihat Allah.
+- perintah takwa sudah Allah perintahkan kepada umat-umat sebelum kita
+
+وَلِلَّهِ مَا فِي ٱلسَّمَٰوَٰتِ وَمَا فِي ٱلۡأَرۡضِۗ وَلَقَدۡ وَصَّيۡنَا ٱلَّذِينَ أُوتُواْ ٱلۡكِتَٰبَ مِن قَبۡلِكُمۡ وَإِيَّاكُمۡ أَنِ ٱتَّقُواْ ٱللَّهَۚ وَإِن تَكۡفُرُواْ فَإِنَّ لِلَّهِ مَا فِي ٱلسَّمَٰوَٰتِ وَمَا فِي ٱلۡأَرۡضِۚ وَكَانَ ٱللَّهُ غَنِيًّا حَمِيدٗا
+[Surah An-Nisāʾ: 131]
+
+Sabeq Company:
+Dan milik Allah-lah apa yang ada di langit dan apa yang ada di bumi, dan sungguh, Kami telah memerintahkan kepada orang yang diberi kitab suci sebelum kamu dan (juga) kepadamu agar bertakwalah kepada Allah. Tetapi jika kamu ingkar maka (ketahuilah), milik Allah-lah apa yang ada di langit dan apa yang ada di bumi dan Allah Mahakaya, Maha Terpuji.
+
+##  
 
 
 
