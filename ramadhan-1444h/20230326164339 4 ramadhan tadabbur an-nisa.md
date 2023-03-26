@@ -140,3 +140,5 @@ Dan siapakah yang lebih baik agamanya daripada orang yang dengan ikhlas berserah
   - Mengikuti Rasul: Ibadah sesuai dengan tuntunan beliau, lawannya adalah bidah
 
 # Referensi
+
+Disampaikan oleh **Ustadz Muhammad Nur Ihsan** hafidzahullah pada kajian menjelang berbuka
