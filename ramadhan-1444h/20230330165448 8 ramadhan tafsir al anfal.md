@@ -56,6 +56,14 @@ Sabeq Company:
 (Ingatlah), ketika Tuhanmu mewahyukan kepada para malaikat, “Sesungguhnya Aku bersama kamu, maka teguhkanlah (pendirian) orang-orang yang telah beriman.” Kelak akan Aku berikan rasa ketakutan (gentar) ke dalam hati orang-orang kafir, maka pukullah di atas leher mereka dan pukullah tiap-tiap ujung jari mereka.
 
 - Allah berkuasa atas segala sesuatu, sebagaimana diperang badar Allah menurunkan banyk sekali malaikat. Dan Allah menjadikan hati orang-orang kafir takut
-- 
+- Dan yang menyebabkan mereka takut adalah karena mereka menentang Allah dan Rasul-Nya
+
+{ ذَٰلِكَ بِأَنَّهُمۡ شَآقُّواْ ٱللَّهَ وَرَسُولَهُۥۚ وَمَن يُشَاقِقِ ٱللَّهَ وَرَسُولَهُۥ فَإِنَّ ٱللَّهَ شَدِيدُ ٱلۡعِقَابِ }
+[Surah Al-Anfāl: 13]
+
+Sabeq Company:
+(Ketentuan) yang demikian itu adalah karena sesungguhnya mereka menentang Allah dan Rasul-Nya; dan barang siapa menentang Allah dan Rasul-Nya, sungguh, Allah sangat keras siksa-Nya.
+
+
 
 # Referensi
