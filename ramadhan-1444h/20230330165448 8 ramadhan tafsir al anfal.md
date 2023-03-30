@@ -33,7 +33,8 @@ Sabeq Company:
 
 - yaitu sholat yang benar-benar bagus, bukan sholat yang ecek-ecek
 - oleh karena itu Nabi Ibrahim alaihi salam berdoa agar bisa mendirikan dengan baik. Dan tidak mungkin beliau berdoa hanya untuk sholat yang ecek-ecek
-- 
+
+
 
 
 # Referensi
