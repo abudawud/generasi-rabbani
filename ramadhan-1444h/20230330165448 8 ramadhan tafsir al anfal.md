@@ -75,6 +75,12 @@ Demikianlah (hukuman dunia yang ditimpakan atasmu), maka rasakanlah hukuman itu.
 
 > Maka logika sebaliknya, orang yang bertakwa kepada Allah, meninggalkan maksiat maka dia akan mendapatkan ketenangan dunia dan akhirat
 
+  وَمَن يَتَّقِ ٱللَّهَ يَجۡعَل لَّهُۥ مِنۡ أَمۡرِهِۦ يُسۡرٗا
+[Surah Aṭ-Ṭalāq: 4]
 
+Sabeq Company:
+ Dan barang siapa bertakwa kepada Allah, niscaya Dia menjadikan kemudahan baginya dalam urusannya.
+ 
+ 
 
 # Referensi
