@@ -47,7 +47,7 @@ Sabeq Company:
 Sabeq Company:
 Dan tidaklah Allah menjadikannya melainkan sebagai kabar gembira agar hatimu menjadi tenteram karenanya. Dan kemenangan itu hanyalah dari sisi Allah. Sungguh, Allah Mahaperkasa, Mahabijaksana.
 
-# 
+# Ketakutan pada pelaku maksiat
 
 { إِذۡ يُوحِي رَبُّكَ إِلَى ٱلۡمَلَٰٓئِكَةِ أَنِّي مَعَكُمۡ فَثَبِّتُواْ ٱلَّذِينَ ءَامَنُواْۚ سَأُلۡقِي فِي قُلُوبِ ٱلَّذِينَ كَفَرُواْ ٱلرُّعۡبَ فَٱضۡرِبُواْ فَوۡقَ ٱلۡأَعۡنَاقِ وَٱضۡرِبُواْ مِنۡهُمۡ كُلَّ بَنَانٖ }
 [Surah Al-Anfāl: 12]
@@ -63,6 +63,17 @@ Sabeq Company:
 
 Sabeq Company:
 (Ketentuan) yang demikian itu adalah karena sesungguhnya mereka menentang Allah dan Rasul-Nya; dan barang siapa menentang Allah dan Rasul-Nya, sungguh, Allah sangat keras siksa-Nya.
+
+{ ذَٰلِكُمۡ فَذُوقُوهُ وَأَنَّ لِلۡكَٰفِرِينَ عَذَابَ ٱلنَّارِ }
+[Surah Al-Anfāl: 14]
+
+Sabeq Company:
+Demikianlah (hukuman dunia yang ditimpakan atasmu), maka rasakanlah hukuman itu. Sesungguhnya bagi orang-orang kafir itu ada (lagi) azab neraka.
+
+- kekufuran seseorang, selain dihukum di akhirat mereka juga akan dihukum di dunia
+- dan hukuman yang sudah pasti adalah, maksiat yang menyebabkan hati menjadi keras
+
+> Maka logika sebaliknya, orang yang bertakwa kepada Allah, meninggalkan maksiat maka dia akan mendapatkan ketenangan dunia dan akhirat
 
 
 
