@@ -34,7 +34,20 @@ Sabeq Company:
 - yaitu sholat yang benar-benar bagus, bukan sholat yang ecek-ecek
 - oleh karena itu Nabi Ibrahim alaihi salam berdoa agar bisa mendirikan dengan baik. Dan tidak mungkin beliau berdoa hanya untuk sholat yang ecek-ecek
 
+# Kekuatan Kaum Muslimin
 
+
+
+- kekuatan kaum muslimin adalah kesabaran, kedekatan, dan keimanan mereka
+- selalu sentuh kelompok dengan keimanan, kesabaran, doa, kedekatan dengan Allah dalam menghadapi segala masalah, sebagaimana firman Allah
+
+{ وَمَا جَعَلَهُ ٱللَّهُ إِلَّا بُشۡرَىٰ وَلِتَطۡمَئِنَّ بِهِۦ قُلُوبُكُمۡۚ وَمَا ٱلنَّصۡرُ إِلَّا مِنۡ عِندِ ٱللَّهِۚ إِنَّ ٱللَّهَ عَزِيزٌ حَكِيمٌ }
+[Surah Al-Anfāl: 10]
+
+Sabeq Company:
+Dan tidaklah Allah menjadikannya melainkan sebagai kabar gembira agar hatimu menjadi tenteram karenanya. Dan kemenangan itu hanyalah dari sisi Allah. Sungguh, Allah Mahaperkasa, Mahabijaksana.
+
+- 
 
 
 # Referensi
