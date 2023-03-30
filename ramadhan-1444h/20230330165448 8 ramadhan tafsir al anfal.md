@@ -1,15 +1,13 @@
 ---
-title: 8 ramadhan tafsir al anfal
+title: Tafsir Surat Al-Anfal
 date: 2023-03-30
-author: Generasi Rabbani
-tags: []
-categories: []
-summary: -
+author: Abu Abdurrahman 
+tags: [tafsir,aqidah]
+categories: ["Ramadhan 1444H"]
+summary: Aqidah adalah kunci kemenangan ummat Islam sebagaimana telah dibuktikan oleh para sahabat. Itulah kenapa orang-orang kafir akan terus menjauhkan ummat Islam dari tauhid yang lurus.
 ---
 
-# Muqoddimah
-
-# BAB 
+# Tauhid adalah kunci
 
 Pada masa Rasulullah shalallahu alaihi wasallam ketika iman para sahabat waktu itu sangat baik, mereka bisa mengalahkan banyak tentara kuffar sekalipun jumlah mereka jauh lebih sedikit. Oleh karena itu, orang-orang kafir sangat paham dengan pengaruh tauhid terhadap ummat Islam 
 
@@ -93,6 +91,16 @@ Dan Dia memberinya rezeki dari arah yang tidak disangka-sangkanya. Dan barangsia
 Sabeq Company:
  Dan barang siapa bertakwa kepada Allah, niscaya Dia menjadikan kemudahan baginya dalam urusannya.
  
+ # Orang kafir tidak akan pernah berhenti
  
+ { إِنَّ ٱلَّذِينَ كَفَرُواْ يُنفِقُونَ أَمۡوَٰلَهُمۡ لِيَصُدُّواْ عَن سَبِيلِ ٱللَّهِۚ فَسَيُنفِقُونَهَا ثُمَّ تَكُونُ عَلَيۡهِمۡ حَسۡرَةٗ ثُمَّ يُغۡلَبُونَۗ وَٱلَّذِينَ كَفَرُوٓاْ إِلَىٰ جَهَنَّمَ يُحۡشَرُونَ }
+[Surah Al-Anfāl: 36]
+
+Sabeq Company:
+Sesungguhnya orang-orang kafir itu, menginfakkan harta mereka untuk menghalang-halangi (orang) dari jalan Allah. Mereka akan (terus) menginfakkan harta itu, kemudian mereka akan menyesal sendiri, dan akhirnya mereka akan dikalahkan. Ke dalam neraka Jahannamlah orang-orang kafir itu akan dikumpulkan,
+ 
+ - sebagaimana pada ayat ini يُنفِقُونَ adalah fiil mudhari yang artinya sekarang dan yang akan datang (hingga hari kiamat)
 
 # Referensi
+
+Disampaikan oleh **Ustadz Musyafa Ad-Darini** hafidzahullah pada kajian menjelang berbuka 
