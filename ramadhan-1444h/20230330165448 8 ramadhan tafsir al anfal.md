@@ -47,7 +47,15 @@ Sabeq Company:
 Sabeq Company:
 Dan tidaklah Allah menjadikannya melainkan sebagai kabar gembira agar hatimu menjadi tenteram karenanya. Dan kemenangan itu hanyalah dari sisi Allah. Sungguh, Allah Mahaperkasa, Mahabijaksana.
 
-- 
+# 
 
+{ إِذۡ يُوحِي رَبُّكَ إِلَى ٱلۡمَلَٰٓئِكَةِ أَنِّي مَعَكُمۡ فَثَبِّتُواْ ٱلَّذِينَ ءَامَنُواْۚ سَأُلۡقِي فِي قُلُوبِ ٱلَّذِينَ كَفَرُواْ ٱلرُّعۡبَ فَٱضۡرِبُواْ فَوۡقَ ٱلۡأَعۡنَاقِ وَٱضۡرِبُواْ مِنۡهُمۡ كُلَّ بَنَانٖ }
+[Surah Al-Anfāl: 12]
+
+Sabeq Company:
+(Ingatlah), ketika Tuhanmu mewahyukan kepada para malaikat, “Sesungguhnya Aku bersama kamu, maka teguhkanlah (pendirian) orang-orang yang telah beriman.” Kelak akan Aku berikan rasa ketakutan (gentar) ke dalam hati orang-orang kafir, maka pukullah di atas leher mereka dan pukullah tiap-tiap ujung jari mereka.
+
+- Allah berkuasa atas segala sesuatu, sebagaimana diperang badar Allah menurunkan banyk sekali malaikat. Dan Allah menjadikan hati orang-orang kafir takut
+- 
 
 # Referensi
