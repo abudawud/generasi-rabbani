@@ -33,4 +33,4 @@ Dan sesungguhnya Kami mengetahui bahwa mereka berkata, “Sesungguhnya Al-Qur'ā
 
 # Referensi
 
-Disampaikan oleh *Ustadz Yassir
+Disampaikan oleh *Ustadz Yassir hafidzahullah* di masjid Abdillah 
