@@ -1,10 +1,10 @@
 ---
-title: halal sehat dunia akhirat 
-date: 2023-08-12
-author: Generasi Rabbani
-tags: []
-categories: []
-summary: -
+title: Halal sehat dunia akhirat 
+date: 2023-08-12 18:00:00
+author: Abu Abdurrahman 
+tags: [fiqih]
+categories: ["Daurah Halal"]
+summary: Kejujuran yg ditetapkan Islam dapat diterima disemua agama.
 ---
 
 - Dalil tentang halal itu pasti baik dan haram itu pasti buruk
