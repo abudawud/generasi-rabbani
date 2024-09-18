@@ -54,4 +54,4 @@ Bagaimana berbakti kepada orang tua yg cerai dan ibu melarang untuk bertemu ayah
 - iblis sangat mencintai cerai sekalipun itu boleh
 - banyak yang menikah tanpa ilmu dan pisah tanpa ilmu
 - usahakan berbakti kepada ayah tanpa diketahui ibu
-- tidak termasuk durhaka, karena tidak ada ketaatan kepada makhluk
+- tidak termasuk durhaka, karena tidak ada ketaatan kepada makhluk.
