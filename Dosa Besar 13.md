@@ -52,4 +52,4 @@ Maka barangsiapa yang menipu orang-orang yang dipimpinnya lalu menipu, berbuat d
 - dengan ilmu kita akan semangat untuk beribadah
 - seorang salafus Sholeh yang sangat cinta dengan ilmu, mereka rela berjalan jauh hanya untuk 1 hadits
 - ingatlah bahwa cinta itu butuh pengorbanan, maka apabila engkau cinta dengan ilmu maka berkorban lah untuknya 
-- maka perkataan seorang salaf ketika ditanya apakah engkau pernah galau? Maka dia menjawab, bagaimana mungkin aku galau sementara aku hidup bersama Rasulullah shalallahu alaihi wasallam dan para sahabatnya dengan membaca sirahnya
+- maka perkataan seorang salaf ketika ditanya apakah engkau pernah galau? Maka dia menjawab, bagaimana mungkin aku galau sementara aku hidup bersama Rasulullah shalallahu alaihi wasallam dan para sahabatnya dengan membaca sirahnya.
