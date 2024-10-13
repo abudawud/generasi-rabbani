@@ -21,7 +21,7 @@ Tahanlah menguap sekuat mungkin karena sesungguhnya syaitan masuk ke tubuh seseo
 
 > Dan barangsiapa yang menahan ketika menguap karena iman dan menerapkan Sunnah Rasulullah shalallahu alaihi wasallam maka dia mendapat pahala 
 
-# 
+# Hadits dari Atha 
 
 ## Biografi Atha bin Rabah 
 
@@ -37,9 +37,13 @@ Namun tidak seorangpun yang boleh mengeluarkan fatwa di musim haji kecuali Atha.
 
 > Ilmu itu dapat mengangkat rumah tanpa tiang. Dan kebodohan itu menghancurkan rumah yang penuh dengan kehormatan dan kemuliaan. Keluarga yang sebelumnya belum pernah dikenal, namun dengan ilmu keluarga tersebut bisa terhormat dan dimuliakan 
 
-- Pernah suatu hari beliau masuk ke kalifah Abdul Malik bin Marwan 
+- Pernah suatu hari beliau masuk ke kalifah Abdul Malik bin Marwan ketika beliau mengunjungi Mekkah di musim haji
 - Yang di samping kalifah tersebut dikelilingi orang-orang besar kalifah 
-- 
+- Setelah Atha datang maka kalifah berdiri dan menyambut Atha lalu beliau mendudukkan Atha di singgasana nya dan beliau duduk di bawah lalu beliau bertanya apa yang engkau inginkan 
+
+> Kemuliaan seseorang adalah shalat malam dan kehormatannya ketidak butuhan nya pada makhluk 
+
+
 
 
 # Tanya Jawab
