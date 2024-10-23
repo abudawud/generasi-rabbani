@@ -1,7 +1,7 @@
 ---
 title: BAB 432 Menggelengkan kepala ketika takjub
 date: 20241022
-author: Generasi Rabbani
+author: "Generasi Rabbani"
 tags: []
 categories: []
 summary: -
