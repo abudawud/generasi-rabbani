@@ -7,11 +7,7 @@ categories: []
 summary: -
 ---
 
-# Muqoddimah
-
-
-
-# BAB 
+# BAB Sabar keluarga Yasir 
 
 صبرا آل ياسر فإن موعدكم الجنة
 
@@ -81,8 +77,33 @@ Telah menceritakan kepada kami [Musaddad] telah menceritakan kepada kami [Yahya]
 
 وَكَانَ عَلَى الْعَاصِ بن وَائِلِ دين، فَأَتَيْتُهُ، أَتَقَاضَاهُ، فَقَالَ: لَا والله، لا أَقْضِيكَ حَتَّى تَكْفُرَ بِمُحَمَّدٍ، فَقُلْتُ: لَا وَاللَّهِ، لَا أَكْفُرُ بِمُحَمَّدٍ حَتَّى تموت ثُمَّ تبعث، قَالَ: فإني إذا مت ثُمَّ أُبْعَثَ جئتني ولي ثم مَال وَوَلَد فأعطيك، فأنزل الله: ﴿أَفَرَعَيْتَ
 الَّذِي كَفَرَ بِنَايَتِنَا وَقَالَ لَأُوتَيْنَ مَالًا وَوَلَدًا إلى قوله: وَنَرِثُهُ مَا يَقُو وَيَأْتِينَا فَرْدًا [مريم: ۷۷ - ۸۰]
-- Ash bin Wail tidak membayar 
-- 
+- Ash bin Wail tidak membayar upah Khabbab ketika beliau menagihnya 
+- Dan mengatakan nanti kalau aku dibangkitkan akan aku bayar engkau dengan hartaku dan anak-anak ku (sebagai ledekan)
+
+
+{ أَفَرَءَيۡتَ ٱلَّذِي كَفَرَ بِـَٔايَٰتِنَا وَقَالَ لَأُوتَيَنَّ مَالٗا وَوَلَدًا }
+[Surah Maryam: 77]
+
+Sabeq Company:
+Lalu apakah engkau telah melihat orang yang mengingkari ayat-ayat Kami dan dia mengatakan, “Pasti aku akan diberi harta dan anak.”
+
+{ أَطَّلَعَ ٱلۡغَيۡبَ أَمِ ٱتَّخَذَ عِندَ ٱلرَّحۡمَٰنِ عَهۡدٗا }
+[Surah Maryam: 78]
+
+Sabeq Company:
+Adakah dia melihat yang gaib atau dia telah membuat perjanjian di sisi Tuhan Yang Maha Pengasih?
+
+{ كَلَّاۚ سَنَكۡتُبُ مَا يَقُولُ وَنَمُدُّ لَهُۥ مِنَ ٱلۡعَذَابِ مَدّٗا }
+[Surah Maryam: 79]
+
+Sabeq Company:
+Sama sekali tidak! Kami akan menulis apa yang dia katakan, dan Kami akan memperpanjang azab untuknya secara sempurna,
+
+{ وَنَرِثُهُۥ مَا يَقُولُ وَيَأۡتِينَا فَرۡدٗا }
+[Surah Maryam: 80]
+
+Sabeq Company:
+Dan Kami akan mewarisi apa yang dia katakan itu,dan dia akan datang kepada Kami seorang diri.
 
 # Tanya Jawab
 
