@@ -26,7 +26,10 @@ summary: -
 
 
 - Imam Nawawi mengatakan, jika dia memaksa sekali maka tahan lah dengan keras, dan jika memaksa sampai harus membunuhnya maka tidak mengapa
-- 
+- Adapun orang yang sudah terlanjur lewat dan tidak kita sangka, maka biarkan saja
+- Jika terpaksa maka cari jarak antara dia dengan tempat sujud, namun sebagian ulama mengatakan makruh 
+
+
 
 
 # Tanya Jawab
