@@ -29,8 +29,14 @@ summary: -
 - Adapun orang yang sudah terlanjur lewat dan tidak kita sangka, maka biarkan saja
 - Jika terpaksa maka cari jarak antara dia dengan tempat sujud, namun sebagian ulama mengatakan makruh 
 
+١١٤ - عن عبد الله بن عباس رضي الله عنهما قال : أَقْبَلْتُ رَاكِباً عَلَى حِمَارِ أَتَانٍ - وَأَنَا يَوْمَئِذٍ قَدْ نَاهَرْتُ الاحْتِلام - ورسول الله ﷺ يُصَلِّي بالناس بمني (۱) إِلَى غَيْرِ جِدَارٍ ، فَمَرَرْتُ بَيْنَ يَدَيْ بَعْضٍ الصُّفُ، فَنَزَلْتُ فَأَرْسَلْتُ الآتَان تَرْتَعُ ، وَدَخَلْتُ فِي الصَّفُ، فَلَمْ يُنْكِرُ ذَلِكَ علي أحَدٌ (٢)
 
+- Anak kecil sudah harus dipisahkan laki dan perempuan 
+- Dalil menunjukkan bolehnya melewati shaf dalam sholat jama'ah 
+- Yang wajib menggunakan sutrah adalah imam sholat jamaah dan seorang yang sholat sendirian 
+- Keledai tidak membatalkan sholat 
 
+١١٥ - عن عائشة رضي الله عنها قالت: كُنْتُ أَنَامُ بَيْنَ يَدَيْ رسول الله ، وَرِجْلَايَ فِي قِبْلَتِه، فَإِذَا سَجَدَ غَمَزَنِي فَقَبَضْتُ رِجْلَيَّ، وَإِذَا قَامَ بَسَطْتُهُمَا ، قَالَتْ : ] (۳) وَالْبُيُوتُ يَوْمَئِذٍ لَيْسَ فِيهَا مَصَابِيحُ (4) .
 
 # Tanya Jawab
 
