@@ -38,6 +38,14 @@ summary: -
 
 ١١٥ - عن عائشة رضي الله عنها قالت: كُنْتُ أَنَامُ بَيْنَ يَدَيْ رسول الله ، وَرِجْلَايَ فِي قِبْلَتِه، فَإِذَا سَجَدَ غَمَزَنِي فَقَبَضْتُ رِجْلَيَّ، وَإِذَا قَامَ بَسَطْتُهُمَا ، قَالَتْ : ] (۳) وَالْبُيُوتُ يَوْمَئِذٍ لَيْسَ فِيهَا مَصَابِيحُ (4) .
 
+- 
+
+
 # Tanya Jawab
+
+## Hukum menyentuh 
+- Imam Syafi'i: batal
+- Abu Hanifah: tidak batal 
+- Hambali dan Maliki: kondisional tergantung syahwat 
 
 # Referensi
