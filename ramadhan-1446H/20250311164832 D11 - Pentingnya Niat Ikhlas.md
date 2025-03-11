@@ -16,6 +16,19 @@ summary: -
 
 - Diberikan kemudahan dari apa yang dia hadapi 
 - sebagaimana 3 orang yang terjebak didalam gua karena batu besar yang jatuh di pintu gua sehingga tidak bisa keluar. Ketiganya bertawasul dengan amalannya yang ikhlas karena Allah maka pintu gua tersebut terbuka
+- ingat orang yang tidak ikhlas dari orang-orang yang paling banyak amalannya dari ahlul jihad, ulama, dermawan tapi ke semuanya menjadi korek api neraka. Itu semua karena mereka tidak ikhlas 
+- Barangsiapa yang beramal dengan Riya maka kelak akan menjadi orang yang rugi
+
+# Pahala didapat ketika kita ikhlas 
+
+- seseorang mendapatkan pahala ketika niatnya ikhlas sekalipun caranya salah sebagaimana kisah dalam Bani Israil yang bersedekah kepada 3 jenis orang yang tidak berhak karena dia tidak tahu
+  - bersedekah pada laki-laki pencuri
+    - semoga dengan sedekahnya dia berhenti mencuri 
+  - bersedekah kepada perempuan pezina 
+    - semoga dengan sedekahnya dia berhenti berzina 
+  - bersedekah kepada orang yang kaya
+    - semoga dengan sedekahnya dia sadar dan mau bersedekah 
+- sebagaimana dalam hadis: Barangsiapa yang berpuasa kepada Allah karena iman dan mengharapkan pahala dari Allah (Ikhlas) maka dosanya akan diampuni yang lalu dan yang akan datang 
 - 
 
 # Tanya Jawab
