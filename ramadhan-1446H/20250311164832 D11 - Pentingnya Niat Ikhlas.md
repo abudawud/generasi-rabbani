@@ -29,7 +29,14 @@ summary: -
   - bersedekah kepada orang yang kaya
     - semoga dengan sedekahnya dia sadar dan mau bersedekah 
 - sebagaimana dalam hadis: Barangsiapa yang berpuasa kepada Allah karena iman dan mengharapkan pahala dari Allah (Ikhlas) maka dosanya akan diampuni yang lalu dan yang akan datang 
-- 
+
+# Keistimewaan ikhlas
+
+- Sembunyikan amal kebaikanmu sebagaimana engkau menyembunyikan amal keburukan mu 
+- jangan ijin ketika melakukan amal kebaikan 
+- Tidak sedikit orang masuk ke neraka karena amal baik dan banyak yang masuk surga karena kemaksiatan 
+  - pelaku maksiat bisa bertaubat karena dosanya yang dia sadari kemudian dia bertaubat dengan ikhlas dan Allah menerima taubatnya dan memasukkannya kedalam surga 
+  - sebaliknya orang yang ujub dengan amalannya bisa menjadi sebab Allah masukkan dia kedalam neraka 
 
 # Tanya Jawab
 
