@@ -42,7 +42,27 @@ summary: -
 
 - Al-Qur'an diturunkan dari lauhul Mahfudz ke Baitul Izzah (langit dunia) pada malam Lailatul Qadar 
 - Kemudian dari Baitul Izzah turun ke Nabi shalallahu alaihi wasallam secara berturut-turut selama 20 tahun
-- 
+- Umat terdahulu tidak pernah memiliki malam Lailatul Qadar 
+- Lailatul Qadar hanya untuk umat Nabi Muhammad shalallahu alaihi wasallam 
+- Siapa yang melakukan sholat di malam Lailatul Qadar dengan iman dan mengharap pahala dari Allah maka akan diampuni dosanya yang lalu dan yang akan datang 
+- pada malam Lailatul Qadar ditentukan urusan 
+  - Rizki 
+- Malam keselamatan sampai terbit fajar
+  - Ibnu Jarir: keselamatan dari seluruh keburukan 
+  - Mujahid: Setan tidak bisa menimpakan keburukan kepada manusia 
+
+
+# Kapan Turunnya 
+
+- Ada 40 pendapat 
+- Untuk beramal tidak perlu tahu pendapat ini 
+
+# Tanda 
+
+- Seseorang bisa peka dengan tanda Lailatul Qadar 
+- Maka carilah di sepuluh terakhir bulan Ramadhan 
+- Beliau shalallahu alaihi wasallam mengencangkan sarungnya pada 10 malam ini 
+- Perbanyak dzikir 
 
 # Tanya Jawab
 
